@@ -1,0 +1,1 @@
+Crocodiles wife asked crocodile to taste a monkeys heart
